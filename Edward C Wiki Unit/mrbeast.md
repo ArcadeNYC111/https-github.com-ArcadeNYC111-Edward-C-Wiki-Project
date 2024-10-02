@@ -1,4 +1,5 @@
 James Stephen "Jimmy" Donaldson[1] (born: May 7, 1998 [age 26]), better known online as MrBeast (most commonly stylized as Mr. Beast; formerly known as MrBeast6000, Beast, beast5ty john, and videogamerules), is an American YouTuber and philanthropist known for his videos that often consist of him doing tasks for an extended amount of time, doing or saying something thousands of times, challenges and donations that involve millions of dollars, and more.
+![mrbeast](https://github.com/user-attachments/assets/a24b33b0-7753-4ffb-bae0-cdaeb7fc364c)
 
 Jimmy has become an extremely popular YouTuber in recent years. He is known for giving away lots of money, making people do challenges and tasks for money, and buying large objects.[2]
 
