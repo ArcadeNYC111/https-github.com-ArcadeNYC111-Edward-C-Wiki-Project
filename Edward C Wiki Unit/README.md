@@ -6,4 +6,4 @@ Since its purchase by Google, YouTube has expanded beyond the core website into 
 
 YouTube has had unprecedented social impact, influencing popular culture, internet trends, and creating multimillionaire celebrities. Despite its growth and success, the platform is sometimes criticized for facilitating the spread of misinformation and copyrighted content, routinely violating its users' privacy, excessive censorship, endangering child safety and wellbeing, and for its inconsistent or incorrect implementation of platform guidelines.
 
-
+You can watch YouTube channels and get the idea of starting one and editing your own videos to get viral.
