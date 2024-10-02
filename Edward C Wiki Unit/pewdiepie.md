@@ -1,7 +1,7 @@
 # PewDiePie
 [PewDiePie](https://www.youtube.com/@PewDiePie)
 Felix Arvid Ulf Kjellberg, better known online as PewDiePie (or simply Pewds, formerly Pewdie), is a Swedish YouTuber, comedian, vlogger, gamer.
-(![pewdiepie](https://github.com/user-attachments/assets/5b6b1f7c-4af4-4785-bebb-824b9be0397c)
+![pewdiepie](https://github.com/user-attachments/assets/226d9122-2c8a-4aed-8520-7ba923e28020)
 
 Originally, Felix was known for his horror playthroughs, (such as Amnesia) and reactions but nowadays, he is notorious for his freestyle/skit humor, vlogs, and satirical commentary. Apart from his gaming videos, he is most popular for the series LWIAY. He is also known for numerous series including Meme Review, Pew News, Minecraft Let's Plays, and the above series Last Week I Asked You (LWIAY), a parody of jacksfilms' series Yesterday I asked you (YIAY).
 
